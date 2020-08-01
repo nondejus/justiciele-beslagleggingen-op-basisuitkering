@@ -1,2 +1,5 @@
-# justiciele-beslagleggingen-op-basisuitkering
-bij mensen met een basisuitkering die wel eens een pilsje of joint
+justiciele-beslagleggingen-op-basisuitkering
+============================================
+
+2014-2020
+en bij elk supermaktbezoek een controlleerende agent met met de V
